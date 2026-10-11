@@ -1,1 +1,1 @@
-# b-tamas.github.io
+Software Quality Specialist
